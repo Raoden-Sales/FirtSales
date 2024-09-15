@@ -1,1 +1,1 @@
-Offitial site fon onlines sales
+Offitial site for online sales
